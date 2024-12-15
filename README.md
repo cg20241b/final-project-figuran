@@ -2,6 +2,8 @@
 
 # FIGURAN
 
+Link Video: [Presentasi Final Project](https://youtu.be/cjxvk83Yuqs)
+
 ### Team Members:
 - Mikha Gracia Sugiono / 5025221037  
 - Naufal Khairul Rizky / 5025221127  
